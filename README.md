@@ -1,1 +1,1 @@
-# MyProject
+My name is Khamza, I'm a student at the University of South Florida, studying Accounting and Analytics. I'm on the 150 credit track to becoming a CPA and am pursuing a professional career in Auditing. To prepare myself for my career ahead I'm learning Excel on Coursera, and Bookkeeping on Intuit.
